@@ -1,1 +1,3 @@
-# pet
+# ای کاش...
+
+In the face of challenges, retreat and hide.
